@@ -16,4 +16,4 @@
 
 网站操作简单，点击即可观看，无需注册，用户体验优越。我们致力于成为您最值得信赖的免费观看日本AV平台。
 
-<span style="display:none;">[Canonical link]( https://github.com/ribenyi1021/52173490 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/riben54550/52173490 ）</span>
